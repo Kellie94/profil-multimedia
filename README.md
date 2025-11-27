@@ -51,3 +51,9 @@ Je suis une personne créative et ingénieuse qui aime les défis et la stabilit
 Je préfère le domaine du Jeu vidéo et le domaine qui m'interpelle le moins est la création de logiciel.​
 
 Je souhaite acquérir plus de compétences et compléter mon portfolio. Je veux trouver un emploi dans l'intégration web. J'aimerais terminé mon Bac à l'université.
+
+
+---
+[gravel-kellie_moodboard_582 121 MO](https://cmontmorency365-my.sharepoint.com/:i:/g/personal/1270299_cmontmorency_qc_ca/ETTw8nB9QIRKhGx1RAQNQKMBCunTp_ahkzdl4hPbKxepJA?e=ufqtX8)
+[diagramme-de-flux](https://cmontmorency365-my.sharepoint.com/:i:/g/personal/1270299_cmontmorency_qc_ca/EVX8jHhE_bFLtSF_7ToaBT0B-uSS0f6KSbK1pIspc_Om2g?e=g6zc6c)
+
